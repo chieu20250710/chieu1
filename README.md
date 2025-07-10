@@ -10,4 +10,4 @@
 
 这些平台专注于国产AV激情无码久久天堂资源，内容丰富，类型多样，更新迅速，满足不同用户的观看需求。每个视频页面提供影片的详细信息，如时长、清晰度和主演等，支持高清播放，并能根据网络状况自动调整画质，确保流畅播放体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chieu20250710/chieu1 ）</span>
